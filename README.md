@@ -21,7 +21,7 @@
 
 - 📫 How to reach me **mansi1004.kalra@gmail.com**
 
-- ⚡ Fun fact **https://www.linkedin.com/in/mansi-kalra-b46608252/**
+- ⚡ Fun fact **It's not difficult to have fun while working**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
